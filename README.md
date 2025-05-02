@@ -1,0 +1,1 @@
+# Authentic artistic-curator-contract
